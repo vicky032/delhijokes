@@ -1,2 +1,2 @@
-# DelhiJokes.github.io
-Inimethana PaakaPora Mokka Jokes la...:) 
+# DelhiJokes
+Inimethana PaakaPora intha Rizwan Mokka Jokes la...:) 
